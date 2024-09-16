@@ -1,0 +1,2 @@
+# Brainrot-The-game
+brainrot
